@@ -27,3 +27,10 @@ we
 rwe
 rew
 r
+ef
+wefwe
+fwe
+f
+wef
+ew
+few
